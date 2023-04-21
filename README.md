@@ -1,1 +1,1 @@
-### ParentPal Plus Support Page
+### Main Page
